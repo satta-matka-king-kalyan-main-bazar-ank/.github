@@ -13,11 +13,11 @@ This article will take you through the key aspects of Satta Matka, with a specia
 
 ---
 
-**यहाँ देखें Fix👉👉 [कल्याण फिक्स अंक](https://info.pmyojanasathi.com/) 👈👈**
+**यहाँ देखें Fix👉👉 [कल्याण फिक्स अंक](https://kalyan-chart-fix.hindipanti.in/kalyan-satta-matka-dpboss-result/) 👈👈**
 
-**यहाँ देखें Fix👉👉 [कल्याण रिजल्ट लाइव ](https://info.pmyojanasathi.com/) 👈👈**
+**यहाँ देखें Fix👉👉 [Dpboss रिजल्ट लाइव ](https://www.google.com/search?q=hindipanti+in) 👈👈**
 
-**यहाँ देखें Fix👉👉 [कल्याण फाइनल अंक](https://info.pmyojanasathi.com/) 👈👈**
+**यहाँ देखें Fix👉👉 [कल्याण फाइनल अंक](https://kalyan-chart-fix.hindipanti.in/kalyan-satta-matka-dpboss-result/) 👈👈**
 
 ![Kalyan Matka Open Jodi Panel Fix Number](https://qph.cf2.quoracdn.net/main-qimg-297989dc6a37bd75e31f107eccc223bb)
 
